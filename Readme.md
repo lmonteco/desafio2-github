@@ -1,1 +1,1 @@
-Eu vou causar conflitos!
+Não causar conflitos
