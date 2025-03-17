@@ -1,3 +1,2 @@
-Assim que é legal!
-E Assim também é!
-Desafio 3 é melhor!
+Estou aqui para não causar conflitos!
+Portanto, aqui no final é que é legal!
